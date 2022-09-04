@@ -1,1 +1,0 @@
-# qlrance.github.io
